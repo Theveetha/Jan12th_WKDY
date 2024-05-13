@@ -1,1 +1,1 @@
-Practice projects in Learnbay
+Practice projects in Stats and ML
