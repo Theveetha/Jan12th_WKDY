@@ -3,3 +3,5 @@ Please create a folder with your name and can upload your work there.
 
 NOTE: Any suggestions on using this space for group study is appreciated. 
 Can add your suggestions in Suggestions file
+
+Week 1 - Leander's Club Case Study
